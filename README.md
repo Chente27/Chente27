@@ -28,3 +28,7 @@ Here are some ideas to get you started:
 | 11:05 a 11:55 |    ingles   |  comunidades  |  orientacion  |     ingles    |    historia   |
 | 12 a 12:50    |   historia  |  comunidades  |  matematicas  |    historia   |   literatura  |
 | 12:55 a 1:45  |             |               |               |    biologia   |     ingles    |
+
+
+
+https://www.canva.com/design/DAFbN1gfUyI/lVAOypraJZ2JiODZoxtCIg/edit?utm_content=DAFbN1gfUyI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
